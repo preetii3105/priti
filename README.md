@@ -1,2 +1,2 @@
 # priti
-just repository
+hii my name is priti
